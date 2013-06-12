@@ -31,4 +31,4 @@ If you're looking for a fast way to remove pain, reduce stress, and improve flex
 > Aside from being very knowledgeable and efficient trainers, they were also incredibly personable and friendly! I looked forward to every session we had together because they made me feel motivated and comfortable. Our work together has helped me to pass my college soccer preseason fitness training, and there is no way that I would have been able to achieve such a goal without them. Thank you so much again! ~ Harrison F.
 
 ## PUBLISHED IN
-![](http://workoutsforwallstreet.files.wordpress.com/2013/03/rfi_press.png) 
+![](http://workoutsforwallstreet.com/images/rfi-asi.png) 
