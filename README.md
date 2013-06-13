@@ -17,6 +17,8 @@ If you're looking for a fast way to remove pain, reduce stress, and improve flex
 646-820-8246   
 [team@workoutsforwallstreet.com](team@workoutsforwallstreet.com) 
 
+* * *
+
 ## SUCCESS STORIES
 > I would be miserable if I had to stop training with these guys! They really understand my lifestyle, and are great for busy people like myself. They make it easy to schedule sessions, and the results have been awesome. I feel great and haven’t been in this good of shape since high school! ~ Scott L.
 
@@ -30,5 +32,7 @@ If you're looking for a fast way to remove pain, reduce stress, and improve flex
 
 > Aside from being very knowledgeable and efficient trainers, they were also incredibly personable and friendly! I looked forward to every session we had together because they made me feel motivated and comfortable. Our work together has helped me to pass my college soccer preseason fitness training, and there is no way that I would have been able to achieve such a goal without them. Thank you so much again! ~ Harrison F.
 
+* * *
+
 ## PUBLISHED IN
-![](http://workoutsforwallstreet.files.wordpress.com/2013/03/rfi_press.png) 
+![](http://workoutsforwallstreet.com/images/rfi-asi.png) 
