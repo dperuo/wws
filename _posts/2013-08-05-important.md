@@ -14,7 +14,7 @@ We value your privacy and will keep your information secure and confidential at 
 You may need to train on your own. These workouts will be designed as part of your program.
 
 ### Sleep, Stress, and Nutrition
-Good eating, sleeping, and stress management skills will be discussed as part of your program. 
+Good eating, sleeping, and stress management skills may be discussed as part of your program. 
 
 ### Payments and Session Info
 All sessions are paid for in advance. We offer an automatic renewal option to make this process easier. If you opt in for automatic renewal, you give us permission to charge your credit card each time your training package reaches 2 sessions or less. We will email you a confirmation before charging your card. You can cancel automatic renewal at any time.
