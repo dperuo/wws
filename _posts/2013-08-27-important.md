@@ -5,7 +5,7 @@ layout: default
 There are a few things you need to know before we start working together.
 
 ### Medical Clearance
-Please be smart. Exercise can be dangerous and it's your responsibility to obtain medical clearance before we begin. Working with us means you've spoken with your doctor and have been cleared for this type of exercise. Working with us also means that you understand the risks and take full responsibility if anything goes wrong. 
+Please be smart. Exercise can be dangerous and it's your responsibility to obtain medical clearance before we begin. Working with us means you've spoken with your doctor and have been cleared for this type of exercise. Working with us also means that you understand all the risks and take full responsibility if anything goes wrong. 
 
 ### Privacy Policy
 We value your privacy and will keep your information secure and confidential at all times. 
