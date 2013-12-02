@@ -23,13 +23,13 @@ All sessions and subscriptions are paid for in advance. We offer an automatic re
 If you’re a new client and don't like what we do after your first two sessions with us, we'll give you a full refund. After that, sessions are non-refundable, but can be transferred to another person.
 
 ### Cancellations and Rescheduling
-Please give us at least 24-hours notice if you need to cancel or reschedule. We will do the same. If you cancel or reschedule with less than 24-hours notice, you will lose the session.
+Please give us at least 24-hours notice if you need to cancel or reschedule a training session. We will do the same. If you cancel or reschedule with less than 24-hours notice, you will lose the session.
 
 ### Training With Friends
 Training in a small group of 2 or 3 is also available. This is a great option for friends or colleagues with similar schedules!
 
 ### Referrals
-If you refer someone to us and they buy training sessions, you will receive a complementary massage with our favorite massage therapist. She's awesome; you'll like her!
+If you refer someone to us and they buy training sessions, you will receive a complementary massage with our favorite massage therapist!
 
 ### Next Step
 Working with us means that you've read this page carefully and understand what it says. If you have any questions, please contact us.
