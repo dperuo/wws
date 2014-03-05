@@ -35,3 +35,4 @@ If you refer someone to us and they buy training sessions, you will receive a co
 Working with us means that you've read this page carefully and understand what it says. If you have any questions, please contact us.
 
 *Current as of {{ page.date | date_to_long_string }}.*
+
