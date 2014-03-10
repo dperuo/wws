@@ -17,7 +17,7 @@ You may need to train on your own. These workouts will be designed as part of yo
 Good eating, sleeping, and stress management skills may be discussed as part of your program. 
 
 ### Payments and Session Info
-All services are paid for in advance. We offer an automatic renewal option to make this process easier. If you opt in for automatic renewal, you give us permission to charge your credit card each time you're up for renewal. You can cancel automatic renewal at any time.
+All services are paid for in advance. Automatic renewal is our default option. Working with us means you give us permission to charge your credit card each time you're up for renewal. You can opt-out of automatic renewal at any time.
 
 ### Refunds
 If you’re a new client and don't like what we do after your first two weeks with us, we'll give you a full refund. After that, services are non-refundable, but can be transferred to another person.
