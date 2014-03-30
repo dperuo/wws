@@ -26,7 +26,7 @@ If you’re a new client and don't like what we do after your first two weeks wi
 Please give us at least 24-hours notice if you need to cancel or reschedule a training session. We will do the same. If you cancel or reschedule with less than 24-hours notice, you will lose the session.
 
 ### Training With Friends
-Training in a small group of 2 or 3 is also available. This is a great option for friends and colleagues with similar goals!
+Training in a small group of 2 or 3 is also available. This is a great option for friends and colleagues with similar schedules!
 
 ### Referrals
 If you refer someone to us and they buy training sessions, you will receive a complementary massage with our favorite massage therapist!
