@@ -1,4 +1,4 @@
-name: Workouts For Wall Street℠
-markdown: redcarpet
-pygments: true
-permalink: none
+name:        Workouts For Wall Street℠
+markdown:    redcarpet
+highlighter: pygments
+permalink:   none
