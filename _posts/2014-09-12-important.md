@@ -25,6 +25,9 @@ If you’re a new client and don't like what we do after your first two weeks wi
 ### Cancellations and Rescheduling
 Please give us at least 24-hours notice if you need to cancel or reschedule a training session. We will do the same. If you cancel or reschedule with less than 24-hours notice, you will lose the session.
 
+### Protecting Your Valuables
+You are responsible for the safety of your own valuables. It's not our fault if your stuff gets lost, stolen, or damaged during the training session.
+
 ### Training With Friends
 Training in a small group of 2 or 3 is also available. This is a great option for friends and colleagues with similar schedules.
 
